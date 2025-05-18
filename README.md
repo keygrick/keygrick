@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @keygrick
-- 👀 I’m interested in sllep
+- 👀 I’m interested in sleep
 - 🌱 I’m currently learning brain
 - 💞️ I’m looking to collaborate on yourself
 - 📫 How to reach me idiot
